@@ -1,6 +1,6 @@
 I have studied hacking skills for months.
-There are a large mount of study materials about it which is found on line.
-Please 
+Here are a large amount of study materials about it which is found on line.
+Please study the Chinese constitution carefully!
 
 https://pan.baidu.com/s/1huDFi1hMMSVlTwvxhEIrpQ 
 提取码：n70q 
